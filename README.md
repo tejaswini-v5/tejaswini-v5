@@ -9,7 +9,7 @@
 
 - 🤝 I’m looking for full time opportunities starting **May 2025.**
 
-- 📄 Know more about my experience [Link to my resume](https://drive.google.com/file/d/1u2EwL3G0_iUDynzI_aH_RnCoP3AfLjkX/view?usp=sharing)
+- 📄 Know more about my experience [Link to my resume](https://drive.google.com/file/d/19I3CQeOAxxKlopySjfQlv5gY_qw3FqKc/view?usp=sharing)
 
 - ⚡ Fun fact - I'm a **traveling and photography enthusiast**. Hire me so that I can buy myself a **[Sony Alpha](https://electronics.sony.com/imaging/interchangeable-lens-cameras/all-interchangeable-lens-cameras/p/ilce7sm3-b)** :')
 
