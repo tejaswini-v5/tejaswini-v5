@@ -3,9 +3,9 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=tejaswini-v5&label=Profile%20views&color=0e75b6&style=flat" alt="tejaswini-v5" /> </p>
 
-- 🔭 I’m currently working on **building my portfolio.**
+- 🔭 I’m currently working on **couple of full-stack projects.**
 
-- 🌱 I’m currently learning **AWS and basics of product management.**
+- 🌱 I’m currently learning **NLP, AWS and basics of product management.**
 
 - 🤝 I’m looking for full time opportunities starting **May 2025.**
 
