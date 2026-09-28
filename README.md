@@ -9,8 +9,6 @@
 
 - 🤝 I’m eager to explore full-time opportunities starting **May 2025** where I can drive impactful technology solutions and contribute to organizational growth.
 
-- 📄 Know more about my experience [Link to my resume](https://drive.google.com/file/d/19I3CQeOAxxKlopySjfQlv5gY_qw3FqKc/view?usp=sharing)
-
 - ⚡ Fun fact - I'm a **traveling and photography enthusiast**. Hire me so that I can buy myself a **[Sony Alpha](https://electronics.sony.com/imaging/interchangeable-lens-cameras/all-interchangeable-lens-cameras/p/ilce7sm3-b)** :')
 
 <h3 align="left">Connect with me:</h3>
